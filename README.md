@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JayBready
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in doing some computer technicals
+- 🌱 I’m currently learning Information Technology
+- 💞️ I’m looking to collaborate on pretty much anything, and it doesn't have to be coding and programming either
 - 📫 How to reach me 
 - Discord: sir.breadlord
 - Instagram:@jason_breadman
